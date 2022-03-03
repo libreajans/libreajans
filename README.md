@@ -5,6 +5,6 @@
 - 📫  libreajans@gmail.com, yakushabb@gmail.com
 - 👉  http://yakusha.net
 
-### Connect with me:
+### İletişim için
 - https://twitter.com/sabriunal_
 - https://www.linkedin.com/in/sabri-%C3%BCnal-18063857
